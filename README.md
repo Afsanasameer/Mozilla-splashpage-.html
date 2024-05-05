@@ -1,0 +1,1 @@
+# Mozilla-splashpage-.html
